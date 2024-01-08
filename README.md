@@ -3,7 +3,7 @@ Nayer
 and
 Pixabaj
 are
-the
+a
 fantastic
 partner
 
