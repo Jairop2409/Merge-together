@@ -1,5 +1,5 @@
 
-Nayer
+Nay
 and
 Pixabaj
 are
