@@ -1,9 +1,10 @@
 
-Nay
+Nayer
 and
 Pixabaj
 are
 a
 fantastic
-partner's
+partners
+
 
