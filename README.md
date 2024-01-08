@@ -1,7 +1,7 @@
-Nayer 
-and 
+Nayer
+and
 Jairo
-are 
-a 
-good 
-duo 
+are
+a
+good
+partner
