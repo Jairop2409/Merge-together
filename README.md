@@ -5,5 +5,5 @@ Pixabaj
 are
 a
 fantastic
-partner
+partner's
 
